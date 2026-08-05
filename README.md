@@ -1,4 +1,10 @@
 # second-demo
-this is my  second repository.
+this is my  second htht
+
+u
 <br>
-this is the first change.
+git 
+fgd
+gdfg
+dxdfe
+sddwr
